@@ -18,6 +18,8 @@
 <p><br></p>
 <h2><strong><span style="font-size:17pt;font-family:Arial,sans-serif;">How to Get 30 Free Credits with Your Cloudways Coupon Code</span></strong></h2>
 <p><span style="font-size:11pt;font-family:Arial,sans-serif;">One of the most exciting offers available today is the opportunity to&nbsp;</span><strong><span style="font-size:11pt;font-family:Arial,sans-serif;">get 30 free credits</span></strong><span style="font-size:11pt;font-family:Arial,sans-serif;">&nbsp;when you sign up with a Cloudways coupon code. This isn&rsquo;t just a discount&mdash;it&rsquo;s like receiving a welcome gift that gives you extra resources to experiment with and optimize your website.</span></p>
+![Cloudways-promo-code](https://github.com/user-attachments/assets/6b7d8eca-79f6-4fbf-bc18-4208d436cc16)
+
 <h3><strong><span style="font-size:13pt;font-family:Arial,sans-serif;">Step-by-Step Guide:</span></strong></h3>
 <ol>
     <li style="list-style-type:decimal;font-size:11pt;font-family:Arial,sans-serif;">
